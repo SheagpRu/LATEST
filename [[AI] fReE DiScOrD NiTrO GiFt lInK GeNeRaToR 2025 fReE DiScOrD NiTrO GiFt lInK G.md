@@ -1,3 +1,3 @@
-<h3><strong><a href="https://www.google.com/url?q=https%3A%2F%2Fappbitly.com%2FXaxjr">=GET ACCESS=</a></strong></h3>
+GET ACCESS - https://t.co/wB8xCQ8N2k
 
-<h3><strong><a href="https://www.google.com/url?q=https%3A%2F%2Fappbitly.com%2FXaxjr">=GET ACCESS=</a></strong></h3>
+GET ACCESS - https://t.co/wB8xCQ8N2k
